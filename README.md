@@ -1,3 +1,6 @@
 # WandiWardiman-149251970100-131
 
-  This is my first cube.. enjoyy
+Nama : Wandi Wardiman
+ID Regis : 149251970100-131
+
+This is my first cube.. enjoyy
